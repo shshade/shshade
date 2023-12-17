@@ -9,7 +9,7 @@ I'm an absolute beginner with anything relating to programming
 
 I'm learning: Python
 
-I want to learn: C (C++ and C#), JS, HTML, CSS
+I want to learn: C (C++ and C#), JS, HTML, CSS, Julia
 
 I really like ice cream, whales, and anything related to space
 
