@@ -1,3 +1,4 @@
+# im pretty sure if you run this in the terminal and finish the quiz something is wrong so I might fix it or not but idk
 correct = 0
 wrong = 0 
 
