@@ -1,4 +1,5 @@
 ꒰ ୨ৎ ꒱𖣂 ♡⃕⠀𓇬 ׂ ֢🪸 𓆟  ˚. 🫧  ༘◝ ..˖ 𓍢ִ໋🀦✩‧₊
+
 Hi I'm iv (or shade, it doesn't matter)
 I don't care about what pronouns you use for me as long as I know you're referring to me
 
@@ -9,4 +10,5 @@ I'm learning: Python
 I want to learn: C (C++ and C#), JS, HTML, CSS
 
 I really like ice cream, whales, and anything related to space
+
 ꒰ ୨ৎ ꒱𖣂 ♡⃕⠀𓇬 ׂ ֢🪸 𓆟  ˚. 🫧  ༘◝ ..˖ 𓍢ִ໋🀦✩‧₊
