@@ -4,7 +4,7 @@
 ☾🌌⋆｡𖦹 °✩⊹˚. ⋆⭒˚｡🚀⋆.𖥔 ݁ ˖
 ₊˚⊹⋆˙⟡☄️.𖥔 ݁ ˖₊˚ ・₊✧🛰️
 
-⋆˙⟡ Hi I'm iv (or shade, it doesn't matter)
+⋆˙⟡ Hi I'm iv 
 I don't care about what pronouns you use for me as long as I know you're referring to me
 
 
